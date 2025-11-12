@@ -1,2 +1,2 @@
 # servidor
-oi bão bem vindos a the legion 2 
+bem vindo a THE LEGION 2 
